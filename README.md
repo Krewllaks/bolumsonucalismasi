@@ -1,0 +1,2 @@
+# bolumsonucalismasi
+bölüm sonu çalışması
